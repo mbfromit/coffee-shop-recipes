@@ -19,7 +19,7 @@
 
 - Prepare 1 shot of espresso and pour into a mug (1 shot = 1 oz).
 
-### Step 3a
+### Step 3
 
 - Stir hot espresso and softened white chocolate together.
 
