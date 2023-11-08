@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 oz espresso roast
-- 1 cup almond milk 
+- 2 cups almond milk 
 - Milk frother
 - Optiosweetener
 
